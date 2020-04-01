@@ -1,5 +1,3 @@
-# presentacion-joacobruno
-presentacion-joacobruno created by GitHub Classroom
 
 ## Hola, mi nombre es Joaquin!
 
