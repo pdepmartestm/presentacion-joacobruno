@@ -9,7 +9,7 @@ Tengo 21 años, vivo en Villa devoto y soy hincha del club mas grande de la Arge
 - Ver y jugar al Futbol 
 - Ver y jugar al Basquet
 - Fifa
-
+- Juntarme con amigos
 
 ### Ultimas series vistas
 - Elite
